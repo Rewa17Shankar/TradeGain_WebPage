@@ -1,4 +1,4 @@
-trade platform
+trade platform:-  https://rewa17shankar.github.io/TradeGain_WebPage
 <img width="1284" height="584" alt="image" src="https://github.com/user-attachments/assets/a2a427ca-4b2d-4126-baf1-b088fac339ff" />
 <img width="1281" height="602" alt="image" src="https://github.com/user-attachments/assets/25024adc-122d-4c2c-a700-f16063143f35" />
 <img width="1300" height="610" alt="image" src="https://github.com/user-attachments/assets/3aa29db1-b5f9-4a7f-ba2e-7fc52e46d86d" />
